@@ -1,3 +1,5 @@
+![Banner](Cherry Blossoms)
+
 # Kia Ora! 😄
 
 *I'm using this for my STATS 220 assignments*
