@@ -1,5 +1,3 @@
-![Banner](Cherry Blossoms.webp)
-
 # Kia Ora! 😄
 
 *I'm using this for my STATS 220 assignments*
