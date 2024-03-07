@@ -1,4 +1,4 @@
-![Banner](Cherry Blossoms)
+![Banner](Cherry Blossoms.webp)
 
 # Kia Ora! 😄
 
