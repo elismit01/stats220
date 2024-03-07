@@ -13,6 +13,6 @@
 3. I'm now doing a Bachelor of Science in Psychology and Statistics
 
 ### About me (professionally) 🖋️ :
-**you can find my professional history of my LinkedIn! Just click here:**
+**You can find my professional history of my LinkedIn! Just click here:**
 [My LinkedIn](www.linkedin.com/in/eli-smit-148743234)
 
